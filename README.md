@@ -35,7 +35,7 @@
 
 ### 📫 Let's Connect!
 
-- 💼 **LinkedIn:** 
+- 💼 **LinkedIn:** www.linkedin.com/in/rameez-ahmed-5bb013282
 - 📧 **Email:** 
 
 ---
